@@ -6,4 +6,4 @@
 
 
 
-![bearly-generated-image-1K414N](https://github.com/luismi/miniature-octo-fiesta/assets/1941322/e01e9c06-e73d-4ace-a6fa-88bbbda32ce2)
+![Cuando escuchas los petardos en las Hogueras, pero tratas de mantener la calma para no asustar a tu perro](https://github.com/luismi/miniature-octo-fiesta/assets/1941322/e01e9c06-e73d-4ace-a6fa-88bbbda32ce2)
